@@ -6,7 +6,7 @@
 <br/>
 회사 일이 바쁘지 않을 때, 퇴근 후에는 공부/동기부여 목적의 사이드 프로젝트하는 것을 좋아합니다.
 
-🌟 **portfolio** [https://fuschia-basement-f24.notion.site/...](https://fuschia-basement-f24.notion.site/45a3fa5bd59441919d6a276be4ac8a69?pvs=4)
+🌟 **portfolio** [https://fuschia-basement-f24.notion.site/...](https://fuschia-basement-f24.notion.site/f6067bf4d8f84c6281e907e4764e83e2?pvs=4)
 <br/>
 🌟 **blog** [https://nosorae.tistory.com](https://nosorae.tistory.com/)
 <br/>
